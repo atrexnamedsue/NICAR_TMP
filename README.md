@@ -7,3 +7,8 @@ because armadillos rock
 
 commit
 making permanent change 
+
+
+fight for your life
+always be strivin'
+like kevin bacon
